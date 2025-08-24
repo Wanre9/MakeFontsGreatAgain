@@ -36,4 +36,4 @@ https://t.me/taichi91
 
 Power by:
 
-Yiyunlengyu(酷安@Aq1298)
+Yiyunlengyu(酷安@Numbersf)
